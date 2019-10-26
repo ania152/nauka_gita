@@ -1,1 +1,1 @@
-cos tam
+cos tam sobie dopisalam
